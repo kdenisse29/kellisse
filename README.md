@@ -1,0 +1,1 @@
+Folder with various sites I created from dumb ideas. No, I actually don't have time to do this.
